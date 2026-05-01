@@ -1,4 +1,4 @@
-###  I'm Rustamova Oygul Nemat qizi👋
+###  I'm Rustamova Oygul Nematovna👋
 
 <p align="center">
   
